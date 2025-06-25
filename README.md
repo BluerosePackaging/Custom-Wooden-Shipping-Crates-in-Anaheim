@@ -4,6 +4,8 @@ Shipping valuable or fragile items requires more than just a box—it demands a 
 
 In industries like manufacturing, electronics, medical equipment, and aerospace, standard packaging often falls short. A wooden crate designed to your specifications can drastically reduce damage risk, optimize space, and ensure compliance with shipping regulations—especially for international transit.
 
+**[Check Our Inventory & Request for Quote](https://www.bluerosepackaging.com/product-category/custom-products/custom-wooden-shipping-crates/)**
+
 ## What Makes Wooden Crates Ideal for Shipping?
 
 - Strength and durability to support heavy or irregular loads  
